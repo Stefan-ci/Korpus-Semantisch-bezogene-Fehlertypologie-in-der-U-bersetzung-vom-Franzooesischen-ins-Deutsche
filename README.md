@@ -2,4 +2,4 @@
 
 In der Arbeit wurden die von Studierenden des ersten Jahrgangs an der Germanistikabteilung der Universität Alassane OUATTARA zu Bouaké begangenen Übersetzungsfehler ausführlich analysiert. Es geht nicht darum, alle Fehler zu analysieren, sondern nur semantischbezogene Fehlertypologien ans Licht zu bringen, um mögliche Lösungen vorzuschlagen. Texte und Situationen, die in der Arbeit analysiert wurden, stammen aus Schriften und Klausurphasen vom schulischen Fach „Thème“, die in Germanistik an der Universität Alassane OUATTARA von Bouaké seit Jahren unterrichtet werden. „Thème“ bezeichnet die Hinübersetzung (vom Französischen ins Deutsche). Die zu analysierenden Texte umfassen akademische Jahre von 2020 bis 2022, sowie selbst erarbeitete Texte, die manche Studierenden des akademischen Jahres (2021-2022) übersetzt haben. Teile dieser Texte können im Anhang der Masterarbeit gefunden werden.
 
-Falls Sie die ganze Arbeit lesen wollen, bitte schreiben Sie mir eine Nachricht [per Mail](mailto:s.claverdiby@gmail.com)
+Falls Sie die ganze Arbeit lesen wollen, bitte schreiben Sie mir eine Nachricht [per Mail](mailto:s.claverdiby@gmail.com).
